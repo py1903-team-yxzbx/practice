@@ -1,13 +1,9 @@
 # practice
 practice for y+zh
 
-zbx_1
+aaaaaaaaa
+aaaaaaaaa
 dawpfapf
 apngeipg
 apgjpegjg
-
-dawohfeog
-=======
-
 aaaaaaaaa
-master
