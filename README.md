@@ -1,8 +1,4 @@
 # practice
 practice for y+zh
 
-dawpfapf
-apngeipg
-apgjpegjg
-
-dawohfeog
+sunck is a good man!
